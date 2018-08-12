@@ -4,10 +4,9 @@ layout: default
 
 ![avatar](star.jpg)
 
-# Kirby
+# Yichen Is Always Ready to Play
 
-A Nintendo Character
-
+Yeahhhhhhh!!!!!
 - - -
 
 ### about
